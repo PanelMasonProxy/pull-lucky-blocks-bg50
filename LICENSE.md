@@ -1,4 +1,4 @@
-
+Experience pull lucky blocks like never before with pull lucky blocks Scripts new, the #1 Script. Includes anti-ban and infinite resources for
 
 
 
